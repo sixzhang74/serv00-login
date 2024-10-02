@@ -7,7 +7,7 @@
 
 🙏🙏🙏点个Star！！Star！！Star！！
 
-交流群：https://t.me/yxjsjl
+一休电报交流群：https://t.me/yxjsjl
 
 ### 将代码fork到你的仓库并运行的操作步骤
 
